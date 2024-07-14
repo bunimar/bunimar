@@ -14,7 +14,9 @@
 ✰ ✰ ✰ 彡 DNI . . .
 
 𝄓 ... } Troll Skins [Unless Friend] ! ﹑⟡
+
 𝄓 ... } Purposely triggers those who have TT/TDs , CT/CDs, and Systems ! ﹑⟡
+
 𝄓 ... } Leon/Clary. You tricked and groomed me, im too terrified to speak about it. Uzi, you know you you are ! ﹑⟡
 
 ≽ fandoms ⵌ ! ‹3 . . ☁️
