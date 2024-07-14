@@ -17,7 +17,7 @@
 
 𝄓 ... } Purposely triggers those who have TT/TDs , CT/CDs, and Systems ! ﹑⟡
 
-𝄓 ... } Leon/Clary. You tricked and groomed me, im too terrified to speak about it. Uzi, you know you you are ! ﹑⟡
+𝄓 ... } Leon/Clary. You tricked and groomed me, im too terrified to speak about it. Uzi, you know who you are ! ﹑⟡
 
 ≽ fandoms ⵌ ! ‹3 . . ☁️
 ╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX, Mean Girls, Heathers}  ,  Vocaloid Songs  ,   ! } ‹3
