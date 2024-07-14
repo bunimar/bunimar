@@ -20,19 +20,15 @@
 
 𝄓 ... } Troll Skins [Unless Friend] ! ﹑⟡
 
-𝄓 ... } Dotted Eyes ! ﹑⟡
-
 𝄓 ... } Weirdos ! ﹑⟡
 
-𝄓 ... } DTeam Fans / Wbur Supporters ! ﹑⟡
+𝄓 ... } makes fun of those who have TT/TDs , CT/CDs, and Systems. Its a pony game , just hide them ! ﹑⟡
 
 ≽ fandoms ⵌ ! ‹3 . . 🎈
 
-╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games , ETC ! } ‹3
+╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX}  ,  ETC ! } ‹3
 
 📼﹑ıllı ≥ Socials !!! ❱❱ ✦
-
-⌗ ⸝⸝ 『 @ rentey 』︔︉ txt
 
 ⌗ ⸝⸝ 『 @ discord 』︔︉ solstice_dreamscape
 
