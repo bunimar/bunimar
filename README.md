@@ -35,3 +35,8 @@
 ⌗ ⸝⸝ 『 @ rentey 』︔︉ txt
 
 ⌗ ⸝⸝ 『 @ discord 』︔︉ solstice_dreamscape
+
+
+my silly friends , i hang out w/ them whenever im online (tysm 4 being my friend)
+
+Charlie  ,  Psychozlasher  ,  Mangrove Tree System
