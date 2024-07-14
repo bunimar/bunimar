@@ -1,4 +1,5 @@
-▞ : “ greetings to all ” .ᐟ.ᐟ -,, 💤
+▞ : “ I'll do it over, no matter how many times it takes. I'll re live it over and over again. I will find a way out. The one path that will save you from this destiny of despair. Madoka my one and my only friend. I don't care because if it's for you, I'll stay trapped in this endless maze... Forever ”  -,, 💤
+
 @ solarium ˶ onyx ˎ˗ 16 ︵ ★☆
 💫 ⵌ ！sys .ᐟ ᐢ..ᐢ﹒agender ╮
 【 before you int .ᐟ 】
