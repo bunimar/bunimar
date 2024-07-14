@@ -25,6 +25,6 @@
 ⌗ ⸝⸝ 『 @ discord 』︔︉ solstice_dreamscape
 
 
-Our silly friends ,  (tysm 4 being our friend)
+tysm 4 being our friend
 
 Charlie  ,  Psychozlasher  ,  Mangrove Tree System  ,  Dust
