@@ -26,7 +26,7 @@
 
 ≽ fandoms ⵌ ! ‹3 . . 🎈
 
-╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX}  ,  ETC ! } ‹3
+╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX, Mean Girls, Heathers}  ,  Vocaloid Songs  ,   ! } ‹3
 
 📼﹑ıllı ≥ Socials !!! ❱❱ ✦
 
