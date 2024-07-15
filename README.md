@@ -7,13 +7,13 @@
 
 ︿︿ Basic DNI stuff. If we find you acting weird towards us or you make us uncomfortable, We can always just hide and block you.
 
-︿︿ We have SVTT (Severe Touch Trigger). Whenever on Safe Serverz feel free to approach as we're only there if comfortable. We will not hesitate to block you if you purposely try to trigger us.
+︿︿ We have a TT (Touch Trigger). Whenever on Safe Server, feel free to approach as we're only there if comfortable. We will not hesitate to block you if you purposely try to trigger us.
 
 ︿︿ Always feel free to interact unless specified. Though we're extremely anxious and wont speak until comfortable with you.
 
 ✰ ✰ ✰ 彡 DNI . . .
 
-𝄓 ... } Troll Skins [Unless Friend] ! ﹑⟡
+𝄓 ... } Leon ... you know who you are  ! ﹑⟡
 
 𝄓 ... } Purposely triggers those who have TT/TDs , CT/CDs, and Systems ! ﹑⟡
 
