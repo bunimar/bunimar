@@ -25,6 +25,11 @@
 ⌗ ⸝⸝ 『 @ discord 』︔︉ solstice_dreamscape
 
 
+ty for talking to us [n not being scary]
+
+Sorin  ,  Avril  ,  Alex  ,  Julia  ,  Vamp
+
+
 tysm 4 being our friend
 
 Charlie  ,  Mangrove Tree System  ,  Psychozlasher  ,  Dust  ,  Bea
