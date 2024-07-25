@@ -1,23 +1,15 @@
-▞ : “ I'll do it over, no matter how many times it takes. I'll re live it over and over again. I will find a way out. The one path that will save you from this destiny of despair. Madoka my one and my only friend. I don't care because if it's for you, I'll stay trapped in this endless maze... Forever ”  -,, 💤
+▞ : “ The stars are watching. ”  -,, 💤
 
 @ solarium ˶ onyx ˎ˗ 16 ︵ ★☆
-💫 ⵌ ！sys .ᐟ ᐢ..ᐢ﹒agender ╮ 
+💫 ⵌ ！iwc .ᐟ ᐢ..ᐢ﹒agender ╮ 
 
 【 before you int .ᐟ 】
 
-︿︿ Basic DNI stuff. If we find you acting weird towards us or you make us uncomfortable, We can always just hide and block you.
+︿︿ Basic DNI stuff. If we find you acting weird towards us or you make us uncomfortable, We will hide or block you.
 
-︿︿ We have a TT (Touch Trigger). Whenever on Safe Server, feel free to approach as we're only there if comfortable. We will not hesitate to block you if you purposely try to trigger us.
+︿︿ We have a TT (Touch Trigger). Whenever on Safe Server, feel free to approach as we're only there if comfortable. Though, if you try to purposely trigger us, we will not hesitate to block you.
 
-︿︿ Always feel free to interact unless specified. Though we tend to be extremely nervous or come off as rude
-
-✰ ✰ ✰ 彡 DNI . . .
-
-𝄓 ... } Weirdos...  ! ﹑⟡
-
-𝄓 ... } Leon ... you know who you are  ! ﹑⟡
-
-𝄓 ... } Purposely triggers those who have TT/TDs , CT/CDs, and Systems ! ﹑⟡
+︿︿ Always feel free to interact unless specified. Though we tend to be extremely nervous or may come off as rude
 
 ≽ fandoms ⵌ ! ‹3 . . ☁️
 ╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX, Mean Girls, Heathers}  ,  Vocaloid Songs  ! } ‹3
@@ -32,6 +24,16 @@ ty for talking to us [n not being scary]
 Sorin  ,  Avril  ,  Alex  ,  Julia  ,  The Masquerade Mafia
 
 
-tysm 4 being our friend
+tysm for being my friend
 
-Charlie  ,  Mangrove Tree System  ,  Psychozlasher  ,  Dust  ,  Bea
+Charlie  ,  Olympus System ,  Psychozlasher  ,  Dust  ,  Bea
+
+✰ ✰ ✰ 彡 DNI . . .
+
+𝄓 ... } Weirdos...  ! ﹑⟡
+
+𝄓 ... } Leon ...  ! ﹑⟡
+
+𝄓 ... } Cyn , Bumblebee , Lunar...  ! ﹑⟡
+
+𝄓 ... } Purposely triggers others... ! ﹑⟡
