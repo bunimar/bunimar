@@ -7,14 +7,14 @@
 
 ︿︿ Basic DNI stuff. If we find you acting weird towards us or you make us uncomfortable, We will hide or block you.
 
-︿︿ We have a TT (Touch Trigger). Whenever on Safe Server, feel free to approach as we're only there if comfortable. Though, if you try to purposely trigger us, we will not hesitate to block you.
+︿︿ We have a TT (Touch Trigger). Whenever on Safe Server, feel free to approach as we're only there if comfortable. Though, if you try to purposely trigger us, we will block you.
 
-︿︿ Always feel free to interact unless specified. Though we tend to be extremely nervous or may come off as rude
+︿︿ Always feel free to interact just please be cautious when on dni.
 
 ≽ fandoms ⵌ ! ‹3 . . ☁️
 ╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNaF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX, Mean Girls, Heathers}  ,  Vocaloid Songs  ! } ‹3
 
-📼﹑ıllı ≥ Socials !!! ❱❱ ✦
+📼﹑ıllı ≥ Social !!! ❱❱ ✦
 
 ⌗ ⸝⸝ 『 @ discord 』︔︉ solstice_dreamscape
 
@@ -26,7 +26,7 @@ Sorin  ,  Avril  ,  Alex  ,  Julia  ,  The Masquerade Mafia
 
 tysm for being my friend
 
-Charlie  ,  Olympus System ,  Psychozlasher  ,  Dust  ,  Bea
+Charlie  ,  Olympus System ,  Psychozlasher  ,  Dust  ,  Bumblebee  ,  Bea
 
 ✰ ✰ ✰ 彡 DNI . . .
 
@@ -34,6 +34,6 @@ Charlie  ,  Olympus System ,  Psychozlasher  ,  Dust  ,  Bea
 
 𝄓 ... } Leon ...  ! ﹑⟡
 
-𝄓 ... } Cyn , Bumblebee , Lunar...  ! ﹑⟡
+𝄓 ... } Cyn , Lunar...  ! ﹑⟡
 
 𝄓 ... } Purposely triggers others... ! ﹑⟡
