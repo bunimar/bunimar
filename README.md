@@ -7,20 +7,15 @@
 
 ︿︿ If you make us uncomfortable, you will be hidden, or possibly blocked.
 
-︿︿ Although we have a Touch-Trigger, always feel free to interact and approach us unless our skin name specifically has dni. 
+︿︿ Although we have a Touch-Trigger, always feel free to interact and approach us unless specified otherwise.
 
-︿︿ If you purposely try to trigger us or those close to us, you will be hidden.
+︿︿ If you purposely try to trigger us or those close to us, you will be blocked.
 
 ≽ fandoms ⵌ ! ‹3 . . ☁️
 ╰ ︵ Dreamtale  ,  Undertale and Aus  ,  FNAF , BATIM , 2010 Indie Horror Games ,  Musicals {Hamilton, Ride the Cyclone, SIX, Mean Girls, Heathers}  ,  Vocaloid Songs  ! } ‹3
 
 
 
-ty for talking to us [n not being scary]
+Those Held Dearly ~
 
-Sorin  ,  Avril  ,  Alex  ,  Julia  ,  The Masquerade Mafia
-
-
-Those Held Dearly
-
-Pezzule Piece  ,  Charlie  ,  Olympus System ,  Dust  ,  Bumblebee  ,  
+Broadcast Virus  ,  Charlie  ,  Olympus System ,  Bumblebee  ,  Moon
