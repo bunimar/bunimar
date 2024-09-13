@@ -1,6 +1,6 @@
 “ Like eyes , the stars are ever watching . ”
 
-@ solarium , bodily 16 . 💫 . iwc . agender ╮ 
+† solarium , bodily 16 . 💫 . iwc . agender ╮ 
 
 【 before you int 】
 
@@ -10,7 +10,7 @@
 
 .. if you purposely try to trigger us or those close to us, you will be blocked .
 
-> interest ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals  .ᐟ
+> interest ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals .
 
 
 those held dearly . . .
