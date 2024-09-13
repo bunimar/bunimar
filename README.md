@@ -14,7 +14,5 @@
 > interest ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals  .ᐟ
 
 
-Broadcast Virus  ,  Charlie  ,  Olympus System ,  Bumblebee  ,  Moon
-
 those held dearly . . .
 - broadcast virus . charlie . olympus system . bumblebee . moon . petal
