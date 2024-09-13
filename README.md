@@ -11,8 +11,7 @@
 
 .. if you purposely try to trigger us or those close to us, you will be blocked .
 
-> interest .ᐟ ☁️
-╰ ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals  .ᐟ
+> interest ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals  .ᐟ
 
 
 Broadcast Virus  ,  Charlie  ,  Olympus System ,  Bumblebee  ,  Moon
