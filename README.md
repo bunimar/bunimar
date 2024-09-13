@@ -1,7 +1,6 @@
 “ Like eyes , the stars are ever watching . ”
 
-@ solarium , bodily 16
-💫 .ᐟ iwc . agender ╮ 
+@ solarium , bodily 16 . 💫 . iwc . agender ╮ 
 
 【 before you int 】
 
