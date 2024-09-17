@@ -6,11 +6,11 @@
 
 .. if you make us uncomfortable, you will be hidden, or possibly blocked .
 
-.. although we have a touch-trigger, always feel free to interact and approach us unless specified otherwise .
+.. although we have a touch-trigger, always feel free to interact and approach unless specified otherwise .
 
 .. if you purposely try to trigger us or those close to us, you will be blocked .
 
-> interest ︵ dreamtale . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals .
+> interest ︵ felines . plants / floral . undertale and aus . fnaf . batim . slendytubbies . musicals .
 
 
 those held dearly . . .
