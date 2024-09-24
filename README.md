@@ -6,7 +6,7 @@
 
 .. if you make us uncomfortable, you will be hidden, or possibly blocked .
 
-.. although we have a touch-trigger, always feel free to interact and approach unless specified otherwise .
+.. if you see us on safe server always feel free to interact and approach unless specified otherwise .
 
 .. if you purposely try to trigger us or those close to us, you will be blocked .
 
@@ -14,4 +14,4 @@
 
 
 those held dearly . . .
-- broadcast virus . charlie . olympus system . bumblebee . moon . petal
+- code . charlie . koda . petal . oly . bumblebee . moon . 
