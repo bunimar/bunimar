@@ -1,8 +1,6 @@
  
  
-nightmare or　　any 　　⟣ 
+nightmare or　　any 　　⟣   
 hy ⠀⸝ ⠀it   
-agndr ⠀autibpd ⠀systm ⠀
-infp 。 　𒋲 ⠀　16　　
- 
- ~~◡◡◡◡◡◡◡◡◡◡◡◡◡~~
+agndr ⠀autibpd ⠀systm ⠀  
+infp 。 　𒋲 ⠀　16
