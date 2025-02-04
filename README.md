@@ -1,8 +1,6 @@
-> *⠀﹙💫﹚⠀☆⠀Nightmare⠀♰⠀Any⠀。⠀⠀iwc⠀      𓈒⠀*
+# ⠀nightmare⠀,⠀any⠀˚⠀⠀iwc⠀      
 
-*⠀☆⠀⠀hy⠀it⠀star⠀★⠀⠀any⠀terms   𓈒*
-*⠀★⠀⠀16⠀⠀☆⠀agender⠀autibpd   𓈒*
+*⠀   hy⠀it⠀star⠀⠀⠀any⠀terms*
+*⠀   ⠀16⠀⠀⠀agender⠀autibpd*
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀~~◡◡◡◡◡◡◡◡◡◡◡◡◡~~
-⠀
-please don't be afraid to talk to us , promise we don't bite !! love making friends , we're just awkward 🐩
