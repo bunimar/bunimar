@@ -1,4 +1,4 @@
-hello im pawkinz / buni , im lowkey a shy loser
+hello im bunie / loochi , im highkey an unstable shy loser
 
 i like undertale / fandom && aus , dandy's world , five nights at freddy's , the amazing digital circus , my little pony: friendship is magic , warriors and various musicals
 
